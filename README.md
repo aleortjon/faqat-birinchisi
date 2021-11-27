@@ -1,0 +1,2 @@
+# faqat-birinchisi
+faqat shunisi
